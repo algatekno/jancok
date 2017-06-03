@@ -1,2 +1,1 @@
-# jancok
-Jancok
+# JANC#K
